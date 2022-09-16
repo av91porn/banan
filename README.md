@@ -1,3 +1,9 @@
 <a href="https://banan.tv" rel="nofollow">banan.tv</a>
 <a href="https://banan.tv" rel="nofollow">banan.tv</a>
 <a href="https://lotusbuzz.com" rel="nofollow">lotusbuzz.com</a>
+<a href="https://banan.tv/vodtype/23.html" rel="nofollow">91大神91porn</a>
+<a href="https://banan.tv/vodtype/65.html" rel="nofollow">hongkongdoll玩偶姐姐合集</a>
+<a href="https://banan.tv/vodtype/57.html" rel="nofollow">探花视频</a>
+<a href="https://banan.tv/vodtype/25.html" rel="nofollow">麻豆传媒视频</a>
+<a href="https://banan.tv/vodtype/28.html" rel="nofollow">日本FC2PPV</a>
+<a href="https://banan.tv/topicdetail-13.html" rel="nofollow">小宝探花合集</a>
